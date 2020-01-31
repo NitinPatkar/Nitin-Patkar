@@ -1,0 +1,2 @@
+# Nitin-Patkar
+Nitin Patkar is an Indian Artist and Youtuber and also Indian Kabaddi Player , Nitin Patkar also has a YouTube channel called DOING FIRST TIME. Nitin Patkar and his team upload entertainment and songs related videos on this channel . This channel was launched on ( 24 March 2018 ). In which Prakhar from (Stunt Boy Kanpur) channel and Ankit Kumar from (Crazy Noob Gaming) channel and started this channel with his team. Nitin Patkar uploaded his first video on YouTube in association withhis friend Amod Yadav and his other friends.
